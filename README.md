@@ -2,7 +2,7 @@
 
 Computer Science and Engineering Student from Kongu Engineering College
 
-📫 How to reach me: padhmashree2006@gmail.com
+📫 How to reach me: padhmashree2003@gmail.com
 
 
 Resume Link : [My Resume](https://drive.google.com/file/d/1lnlgv8FrhxJoJNp1fa82GBLGTNkGxCN4/view?usp=sharing)
